@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KimberleyPM
+- 👋 Hi, I’m Kimberley
 - 👀 I’m interested in Product Managment
 - 📫 How to reach me kpmuponda@gmail.com
 - 😄 Pronouns: She/Her
